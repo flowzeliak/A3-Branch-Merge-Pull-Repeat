@@ -33,4 +33,10 @@ Group Project for ITC 134
  
  "Hermione." 
  
+ "Check my fireball spell though," said Ron, who was clearly jealous.
+ 
+ He shot a giant fireball across the street, it hit a Cadillac and the vehicle exploded into metal shrapnel and oily flames. 
+ 
+ "You are a wild man Ron, holy smokes," said Hermione, who was clearly impressed. 
+ 
  
