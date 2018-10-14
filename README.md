@@ -16,3 +16,21 @@ Group Project for ITC 134
  "I'm just kidding!" said Harry, "I think we should always be friends!"
  
  "You totally got me bro," Ron replied, laughing, "What am I a Muggle over here?"
+ 
+ Harry laughed and took Ron by the hands and they proceeded to the potion shop.
+ 
+ As they entered the potion shop, they saw a beautiful brunette near the Vodka section.
+ 
+ Taken back by her beauty, Ron scurried over to talk to her.
+ 
+ "Excuse me, I was wondering if you had an extra heart. Mine was just stolen." said Ron. 
+ 
+ "I actually do but I don't think you would be able to afford it." said the girl. 
+ 
+ That's when Harry swoop in with his flashy smile. 
+ 
+ "Forgive my friend Ron. He's bad with women. I'm Harry. Can I get your name?"
+ 
+ "Hermione." 
+ 
+ 
